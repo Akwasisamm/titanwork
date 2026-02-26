@@ -5,4 +5,6 @@ i am a person of 12
 i love Dorcas
 i want to marry her
 but
+nana_adwoa
+Isaac
 
